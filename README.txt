@@ -1,0 +1,1 @@
+Prv fajl za vezbanje.
